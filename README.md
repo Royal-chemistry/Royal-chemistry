@@ -1,6 +1,6 @@
 # Aldrin Ann Thomas
 
-**Executive Director at Tats Force.
+**Executive Director at Tats Force.**
 
 I started doing the accounts at Tats Force when I was 16, so I know the real hassles of an accounts manager first-hand. By 21 I was Executive Director, and I built Accounts Manager to make that job easier for other small businesses, with their records staying on their own devices.
 
